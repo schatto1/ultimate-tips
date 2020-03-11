@@ -4,11 +4,11 @@ When we are cutting, what are we trying to accomplish? Are we trying to score? T
 
 But what I want to focus on is getting separation. This is the basic idea at the center of what we are doing as cutters. If we get separation, we beat the defense. To get the disc effectively, we need to create separation for our thrower to hit us in. If we want to score, we’ll have to getting separation in the end zone. Ultimately, if we are getting separation, attacking the right spaces, and timing it all correctly, we are going to be a very effective cutter.
 
-![Stanford Cal Poly gif](https://gfycat.com/AnxiousHandyHoatzin)
+https://gfycat.com/AnxiousHandyHoatzin
 
 Here, we see a cutter get separation o the break side. Because the mark is so far away, the cutter has the opportunity to put up a break side huck. Throwers are often most dangerous in the first two seconds after they catch the disc. If the cutter’s catch is contested, they won’t have the space from the mark to make a quality throw.
 
-![AUS USA gif](https://gfycat.com/KeyCoordinatedBarnowl)
+https://gfycat.com/KeyCoordinatedBarnowl
 
 Here, the handler gets separation, allowing them to make a yardage-gaining break throw! That’s about as valuable as it gets! Look at how far the mark gets away from the handler. Think of how many options that handler has a thrower: break side, huck, give and go, etc.
 
@@ -20,7 +20,7 @@ For the most part, we are going to focus here on speed and direction. Position i
 ## Homework
 For homework, we have a partner drill, and one of my favorites: Five Cone Cutting Drill.
 
-![five cone cutting drill][./images/five-cone-cutting-drill.png]
+![five cone cutting drill](images/five-cone-cutting-drill.png)
 
 The setup above shows nine cones, arranged in two rows. The Offense cones are further apart and have a middle cone. You can play with these distances however you’d like, but you want your far cones 14 yards from the middle and the short cones 4 yards from the middle. The Defense cones are 11 and 3 yards from the middle; you can adjust these as you see fit.
 
