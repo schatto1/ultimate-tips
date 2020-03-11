@@ -82,3 +82,126 @@ For homework, consider the following questions:
 What variable of cutting are you most effective at manipulating? Which family of cut are you the best at?
 What variable to you utilize the most? Which family do you use the most?
 Bonus: If you have a playing opportunity between this week’s module and next, try to use a cut from each family over the course of play, even if it’s uncomfortable. Push yourself past your habits and out of your comfort zone!
+
+# Week 3 - Creating Space
+## Dividing Up the Field
+If we’re going to take space on the field, let’s make sure we understand the space. How I talk about field space has changed recently. I’ve explored a philosophy from US U24 Mixed National Team coach Martin Aguilera [Link: https://ultfris.blogspot.com/2018/02/defining-space-and-how-we-access-it.html], which looks at how players use the field to identify the varying spaces. In simple, there are three spaces: active, inactive, and ready space. These spaces change as a possession evolves, but each offense has intended active and inactive spaces.
+
+Let’s examine what these terms mean and how we can apply them. “Active” space refers to space our offense intends to use to advance the disc towards our goal of scoring. “Inactive” space refers to, as you can imagine, space we don’t intend to use. “Ready” space is space we may occupy in order to set up our offense, clarify, and clean up these spaces.
+
+For example, a vertical stack might identify the open side as the primary active space, the break side as the inactive space, and the stack itself as the ready space. Those spaces may change as the disc moves or the stack moves.
+
+Now that we have a language to talk about and think about these spaces, we can talk about what to do as cutters with said space.
+
+## Making Space
+We talked about manipulating speed and direction to get separation from our defenders. We can also use our positioning to both get separation and generate more benefits for our offense when we do cut. But we are not the only cutter out there. Often, we are cutting in concert with our teammates, and understanding how to work with them is critical to being an effective cutter. Too many cutters simply think about how their actions affect them and their matchup, and not holistically about how their cuts affect their entire offense.
+
+We want to think about how to make space, both for ourselves and teammates.
+
+For ourselves, we might see one of the best deep throwers going up the line, and take a few steps towards the disc, then planting to go deep, giving us more deep space to attack.
+
+For our teammates, the most popular way to make space is to clear! Clearing is a huge part of cutting, and is functionally always a space-making tactic. By clearing, we vacate active space, either for an alternative active space (think going from under to deep) or for ready or inactive space (clearing to the stack).
+
+However, even non-clearing cuts can make space. Maybe you’re isolated out of a side stack, have your defender underneath you, and immediately take off deep. You draw help from the back of the side stack and create underneath space for a teammate. Or in a zone, you make a threatening cut to crash the cup, pull in an extra defender, and make space for a throw over the top to another teammate.
+
+https://gfycat.com/ajarfaithfulcockatoo
+
+Here, a cutter takes off deep on the inside lane, creating offensive momentum there. It draws a defender and creates a big open under space that his teammate can take advantage of.
+
+We have to be conscious about how our actions affect our offense’s opportunities and think of ourselves as part of the cutters rather than individual cutters. Once we start thinking about the field as spaces that we can take and make, we can work together more synergistically!
+
+## Taking Space
+Once our teammates make space, it’s time to take space. This means is important to
+
+- Identify active space, including which are more important than others
+- Be attentive to your teammates and where the disc is
+- Time our movements to capitalize
+
+https://gfycat.com/loathsomedefiantfoal
+
+Not one, but two cutters go from the middle of the field, towards each of the sidelines. There’s a massive empty space in the middle, space given to a teammate, and a cutter comes under into that space. Even though those other two cuts didn’t get the disc, they made space, and this cutter did their job in taking it.
+
+The most common form this takes is something I call “countering”, which is basically a way to describe taking space that a teammate’s offensive movement created by forcing defenders to vacate them. Common examples include a deep cut drawing defenders to make space under (as described above) and an upline dump cut opening up a filling cut from downfield into the backfield (one of my favorite ways to get the disc off the line).
+
+https://gfycat.com/kindlydependentflycatcher
+
+Watch the cutter coming in from the back of the stack. Their teammate takes off deep, draws the under cutter’s defender, and the under cutter patiently waits for the under space to open up. The initial attack (deep) is viable, but the offense counters that movement to take advantage of the space it created. The cutter gets the disc with plenty of separation to work with.
+
+I have found nearly every successful offense I see counters well. They can cascade advantages they earn over the defense until they overwhelm them, as one player gets out of position and then another does the same trying to help the first, and it continues like dominos falling.
+
+## Homework
+I love getting virtual reps through film and think it can be easier to see structural functions of offenses through film than actually on the field. With that in mind, this week’s homework is going to involve watching some film. Please refer back to resources in the introduction if you need help finding free footage.
+
+Find two examples of a cutter making space.
+Find two examples of a cutter taking space.
+For these examples, please note the time in the video that the events occur and post those! Check out what others post to see their perspective.
+
+
+# Week 4 - Ways to Attack as a Cutter
+Mostly, we have talked about cuts in general terms that apply to many situations. While cuts can be grouped into the different Families of Cutting and function based on manipulating the three variables, that’s still covering a lot of ground when we talk about how to get open. There’s something of an art to beautiful cutting, and to me, it’s a pure form of sport, where the body and mind connect to go one on one to best the opposition.
+
+And while I encourage all of you to go out and discover the footwork you like the best, to react to your defense and your teammates, there are also some tried and true options that work within the common constraints of our game. Let’s look at some specific cuts that are popular options.
+
+### Seven Cut
+
+I actually was looking in Twitter for footage of seven cuts to share with you, and one of the first responses I got was from my pal Cody, who coaches the Cal Poly SLO men’s team. He asked if I was talking about as a handler or a cutter, because terminology here can get confusing.
+
+While the position of this cut changes whether you’re in the backfield or downfield, the fundamental principles are the same: make a hard cut angled towards a sideline, then hit a 45-degree turn back towards the opposite sideline.
+
+As a cutter:
+
+https://www.loom.com/share/475b6da4f8b6406abe83f4248f1e7b8a
+
+As a handler:
+
+https://www.loom.com/share/e551ece19b9d46a987c8fb65b5d37a8b
+
+
+By attacking a position and driving the defense to overcommit to it--defending the upline in the handler seven and stopping the undefended break side in the cutter seven--the cutter can then shift the angle of attack to a different position on the field and take advantage of their defender’s overcommitment. Quick, what variables are we manipulating? (Can we footnote: I’d say direction and positioning.)
+
+As a cutter:
+
+https://gfycat.com/generousmeagerkomododragon
+
+As a handler:
+
+https://gfycat.com/meekpopularabyssiniancat
+
+It can be deadly.
+
+### Curl Cut
+
+The curl cut seems to have become much more popular over the last few years. It can be a little tough to describe, but you frequently see it when a player gets downfield from the disc, starts to move towards the backfield, like they are going to get a reset behind the disc, and then they curl right under their defender back to open side downfield. This cut is won by the offender when they can create a moment where they are accelerating away from the defender, but the defender can’t accelerate in the same direction because they are committed to going behind the disc and because the cutter is in the space they would use to accelerate. This is a great shoulder cut for getting upline action.
+
+https://gfycat.com/jampackedacclaimedamericanwarmblood
+
+https://gfycat.com/heartfeltadvancedbee
+
+It takes some footwork practice to smoothly be able to convert the backfield cut into the upfield cut with enough pace to beat the defender to the space, so this is one I recommend getting reps with. Try to keep your center of gravity above your base (don’t lean your body or extend your legs too far in a given direction) as you move towards the backfield to increase how quickly you can curl!
+
+## Stutter Step
+
+This is a personal favorite of mine, particularly because I’m not someone with the explosive athleticism to blast away for the defense. I like this cut because, simply but manipulating your speed, you can fool the defender into thinking you’re changing direction. And being sneaky is fun!
+
+The simplest explanation of this move is to start charging in a direction, slow down as if you’re about to change direction, and then push back in the same direction. A lot of times, you might actually take a small jump or kick a leg out as if you’re going to plant to change direction. In football and basketball, you probably would know this as a “Hesitation” move, which it also might be in soccer.
+
+Here it is in football:
+
+https://gfycat.com/sanedeadhypacrosaurus-penn-state-nittany-lions-fightonstate-com
+
+And here it is in basketball:
+
+https://gfycat.com/wearylawfularrowana
+
+Even though these examples are from outside of ultimate, the are operating on the same idea: creating the threat that you will change direction in order to create room to pass by the defense. In the basketball example, you can see the defender’s body react to the hesitation by raising up to prepare to change direction. The offensive player might move backwards or bring the ball to their right hand to go the other direction, but just that brief pause gives them time to pass by the defense.
+
+## Homework
+I’ll be honest: I don’t really know the name of this drill. I learned it from David Allison, who at the time, was coaching the University of Virginia’s (UVA) women’s team, so I called it “UVA Drill”. One of my fellow coaches called it “Ambler Drill”, after Gwen Ambler. But let’s try a less referential name that describes the drill: “Clear Cut Drill”.
+
+https://gfycat.com/uncomfortablefatalamoeba
+
+You need a cutter, defender, and a thrower. Then you need a starting point, a “clear lane”, and an activation cone. Your cutter makes a cut, doesn’t get open, and clears to the space between the two “clear lane cones” and the sideline. They should jog in this space, pushing downfield to simulate clearing and pushing after a completion to a teammate. They can exit this space at any time, go into the area of the activation cone (they don’t necessarily need to touch it, just be near it), and then then they are live to cut out or in.
+
+Side note: You may want your thrower to actually throw a dish to another thrower to move the disc forward and reset the stall count. You can simulate this by having the thrower throw a short throw to themselves.
+
+I use this as a defensive footwork drill, but most person defense drills and cutting drills work in reverse. This is a great drill for setting up a game-like situation for a cutter and defender, and helping teach cutters about how much clearing is part of cutting, and transitioning from one to the other. This is a great chance to test out moves like the ones in this Module! Go forth and try it out!
