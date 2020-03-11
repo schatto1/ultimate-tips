@@ -256,7 +256,169 @@ Side View
 
 https://www.youtube.com/watch?v=ONTFYskoeg0
 
-
-
 ### Please post your homework in the comments below!
 Film yourself doing Drill 6: Side shuffle with a pause to both sides and post them! If you’re using Hudl Technique, post it there!
+
+# week 2 session 1 - Flat Mark Strategy
+
+Today is all about changing directions. Last week, we focused in on the basics of building a mark and setting the stage for quick, shuffling work. Today’s workout is all about shuffling and putting together what is a “flat” marking strategy. In a flat marking strategy, we are shuffling along a single plane. In this case, it’s a straight line. Obviously, getting really good and efficient at shuffling in a line will serve us well in a flat mark!
+
+We’re going to warm-up with some of our fast feet movements to get us ready to move laterally in a quick, efficient way.
+
+**Equipment:**
+
+-3 cones
+
+## Warm-up Circuit
+
+Go through **each exercise from Week 1.**
+
+Go two times in a row, and on to the next exercise. Repeat the circuit two times.
+
+**Warm-up Drill 1: Fast Feet in Place (2x per circuit)**
+
+<iframe src="https://www.youtube.com/embed/-YT0VpR7Wdc?rel=0" width="560" height="315" frameborder="0" allowfullscreen="allowfullscreen" style="box-sizing: border-box; position: absolute; top: 0px; bottom: 0px; left: 0px; width: 640px; height: 360px; border: 0px; background-color: rgb(0, 0, 0);"></iframe>
+
+
+
+Standing in your marking base, chop your feet as quickly as you can for 10 seconds. Your goal is to get as many ground contacts as you possibly can in that 10 seconds. Rest for 10 seconds. Repeat.
+
+**Warm-up Drill 2: Fast Feet Shuffle (2x per circuit)**
+
+
+
+<iframe src="https://www.youtube.com/embed/UvgZCVcsReA?rel=0" width="560" height="315" frameborder="0" allowfullscreen="allowfullscreen" style="box-sizing: border-box; position: absolute; top: 0px; bottom: 0px; left: 0px; width: 640px; height: 360px; border: 0px; background-color: rgb(0, 0, 0);"></iframe>
+
+
+
+Standing in your marking base, you’re going to do the fast feet drill, but this time you’ll be shuffling between two cones at about 5 yards (4.5 meters) apart. Your goal is to chop your feet as quickly as you can for 10 seconds as you move from cone to cone, maximizing the number of ground contacts while moving laterally from cone to cone. Alternate which direction you start. Do 1 where you start toward the left and 1 where you start toward the right.
+
+**Warm-up Drill 3: Single Leg Replacement Hops (20 jumps per circuit)**
+
+
+
+<iframe src="https://www.youtube.com/embed/XF6vIAcM2mI?rel=0" width="560" height="315" frameborder="0" allowfullscreen="allowfullscreen" style="box-sizing: border-box; position: absolute; top: 0px; bottom: 0px; left: 0px; width: 640px; height: 360px; border: 0px; background-color: rgb(0, 0, 0);"></iframe>
+
+
+
+Standing with one foot on a line, get into your athletic marking base. Shift your weight toward the foot on the line. Hop straight up, and switch which leg is on the line. Your goal is to keep your weight predominantly over the line. This means you will alternate which leg has most of your weight on it. Do 10 hops on each leg, or 20 hops total, per each set, pausing for 2-3 seconds in between hops.
+
+## Drilling:
+
+We want to get efficient at shuffling. Our first drill is a repeat from our last session.
+
+###  Drill 1: 5 yard (4.5 meter) Side Shuffle with Pause and Reach
+
+
+
+<iframe src="https://www.youtube.com/embed/GcyU5FrmcPY?rel=0" width="560" height="315" frameborder="0" allowfullscreen="allowfullscreen" style="box-sizing: border-box; position: absolute; top: 0px; bottom: 0px; left: 0px; width: 640px; height: 360px; border: 0px; background-color: rgb(0, 0, 0);"></iframe>
+
+
+
+Set up two cones/items to mark off 5 yards or 4.5 meters. You’ll side shuffle from one object to the other, and reach/pause. (Remember, you’re visualizing reaching to block a high release, low release or standard “around” throw at that cone). Focus on minimizing weight shifts. Your goal is to be able to reach without letting your weight shift to your outside leg. Things to add today:
+
+- Reaching higher in your high release “blocking” - try not to come up on your toes
+- Getting lower to block a low release throw - sit down lower and reach out wider when you get to the cone
+- Explosively pushing off with both legs/feet when you change directions after the pause
+
+**Repeat this so you go 8x each way (8x to the left, 8x to the right)**
+
+##  Flat Mark Concepts
+
+We will introduce one of two main marking styles this week: The Flat Mark. In our flat mark, we can position ourselves in one of two ways:
+
+###  45 degree flat mark:
+
+ ![img](https://s3.amazonaws.com/kajabi-storefronts-production/products/65913/images/MyfTGTRyRv2JHhmubnoQ_flatmark45.png)
+
+The diagram above depicts the 45 degree flat mark. The mark positions him or herself at a 45 degree angle and chops their feet/moves along the gray line. The mark is a bit farther away than most people typically set up (think an arm’s length away, slightly more if you have short arms). Your responsibility aligns more closely with what most of us are taught on the mark. We are limiting one half of the field, and focusing on chopping our feet to take away the inside passing lane and the around passing lane, while blocking throws with our bodies to most of the break side.
+
+###  True Flat Mark
+
+ ![img](https://s3.amazonaws.com/kajabi-storefronts-production/products/65913/images/9simeM0GRtygwb8Jtfnj_trueflatmark.png)
+
+The marker in a “True” flat mark, is perpendicular to the sideline, with his/her sternum (center of chest) even with the thrower’s force side shoulder. The mark shifts farther toward the break side, with the goal of forcing close throws to be even or behind the mark, or upfield throws to be big, loopy around (outside-in edge) throws, giving defenders ample time to challenge the passing lane.
+
+
+In both diagrams, the gray dashed line represents the plane on which the thrower moves. In a 45 degree flat mark, the marker covers equal amounts of space on the inside and around throws; in a True flat mark, the marker covers more space on the break side, and less space on the open/inside break area.
+
+###  Drill 5-  True Flat Mark Shuffle
+
+Keeping your two cones set up and add a third cone to represent the open side shoulder/pivot foot), you’ll focus in on shuffling laterally along a “flat mark plane.” The video below sets up a True flat mark scenario. Note that I’m standing closer to one cone (that represents the open or forehand side).
+
+
+
+<iframe src="https://www.youtube.com/embed/EEr2OyD9EWQ?rel=0" width="560" height="315" frameborder="0" allowfullscreen="allowfullscreen" style="box-sizing: border-box; position: absolute; top: 0px; bottom: 0px; left: 0px; width: 640px; height: 360px; border: 0px; background-color: rgb(0, 0, 0);"></iframe>
+
+
+
+
+You can see my stance/positioning from the side as well:
+
+
+
+<iframe src="https://www.youtube.com/embed/8tk-fbjydJQ?rel=0" width="560" height="315" frameborder="0" allowfullscreen="allowfullscreen" style="box-sizing: border-box; position: absolute; top: 0px; bottom: 0px; left: 0px; width: 640px; height: 360px; border: 0px; background-color: rgb(0, 0, 0);"></iframe>
+
+
+
+
+Here’s a demo of the backhand side of this drill too.
+
+
+
+<iframe src="https://www.youtube.com/embed/s4mz8J4vrI8?rel=0" width="560" height="315" frameborder="0" allowfullscreen="allowfullscreen" style="box-sizing: border-box; position: absolute; top: 0px; bottom: 0px; left: 0px; width: 640px; height: 360px; border: 0px; background-color: rgb(0, 0, 0);"></iframe>
+
+
+
+
+**Do the drill 8 times forehand, and 8 times backhand.**
+
+###  Drill 6 - 45 Degree Flat Mark Shuffle
+
+You’ll essentially do the same thing as Drill 5, except you’ll get reps where you’re visualizing the 45 degree flat mark. This means you are shuffling to challenge an equal amount of space to inside and around break lanes. In other words, repeat Drill 5 with “forehand” and “backhand” forces, except for the third cone is evenly placed between the two marker cones, like this (in essence, you move cone C in the center of the diagram to set up the two flat mark drills)
+
+ ![img](https://s3.amazonaws.com/kajabi-storefronts-production/products/65913/images/VjhhEkALQduJHSSoyHwi_drill6conesetup.png)
+
+**Go through 8x with each force**
+
+ 
+
+### Drill 7 - 20 seconds of marking:
+
+You’ll work for 20 seconds nonstop in the two various marking schemes using this pattern so you drill home resetting to the pivot point (i.e. where cone C is)
+
+45 degree marking shuffle -
+
+ ![img](https://s3.amazonaws.com/kajabi-storefronts-production/products/65913/images/PiUIFyIUQUSs8owjyeAf_drill7conesetup.png)
+
+Shuffle from A → C→ A→ C→ B → C → B → C  and repeat for the rest of your time. You’re essentially shuffling from the center, to a side, and back, two consecutive times. Then you repeat toward the opposite direction.
+
+
+**Do 2 reps with a forehand force, 2 with a backhand force in both of the flat marking schemes (True and 45 degree).**
+
+##  Recap
+
+To complete this session you're doing:
+
+**Drill 5 - True Flat Mark Shuffle:**
+
+- 8x Forehand
+- 8x Backhand
+
+**Drill 6 - 45 Degree Flat Mark Shuffle:**
+
+- 8x Forehand
+- 8x Backhand
+
+**Drill 7 - 20 seconds of Marking:**
+
+- 2x 20 seconds on, 20 seconds off, backhand in True flat mark
+- 2x 20 seconds on, 20 seconds off, forehand in True flat mark
+- 2x 20 seconds on, 20 seconds off, backhand in 45 degree flat mark
+- 2x 20 seconds on, 20 seconds off, forehand in 45 degree flat mark
+
+**Repeat all the drills again (you can go through the circuit 2 or 3 times)**
+
+##  Submit Your Homework!
+
+Want feedback? Submit a video in the comments of yourself doing 20 seconds of your true flat mark in drill 7.
