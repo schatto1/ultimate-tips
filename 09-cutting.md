@@ -35,3 +35,50 @@ Go through this drill with a partner or group of people and get everyone at leas
 Once you get it down, you have flexibility to adjust distances, remove the short defensive cones, or add restrictions to how many changes of direction a cutter can make or an amount of time to be counted out loud that the cutter has before they have to commit.
 
 Have questions? Post them below!
+
+
+# Week 2 - The Cutting Families
+In our last session, we looked at three variables we can manipulate as cutters: speed, direction, and positioning. Cuts are combinations of manipulating these elements.
+
+We can divide cuts into three major families: Commitment, Explosion, and Shoulder. Most cuts are either in one of these families, blended together, or are really multiple separate cuts in succession. Commitment cuts rely on a change of direction, typically when your defender has committed to one direction and you change to a different one. Explosion cuts rely on a change of speed. They are often most effective when they timed correctly, either within the flow of the offense, based on the behavior of the defense, or both. Shoulder cuts combine a change of position, getting you to a favorable position and putting your defender in a weaker position.
+
+## Explosion
+
+https://gfycat.com/incrediblelategalah
+
+There happens to have been a very timely article on Ultiworld (note: only fully available to paid subscribers to Ultiworld) entitled “Notes From a Contrarian Coach: Great Cutters Don’t Fake” and it describes, more or less, how effective many cutters are at simply changing speeds at the right time using explosion cuts. Most cuts are explosion cuts. Simply accelerating in one direction is often enough to extend an existing advantage on your defender and get you the separation you need to be successful.
+
+https://gfycat.com/incrediblelategalah
+
+Watch the cutter at the back of the stack. He sees the defender is not looking, the ideal time to make an explosion cut, and accelerates away. Nothing tricky, just timing and speed.
+
+When should we use this cut? Conceptually, when you already have an advantage you want to press. Is your defender not between you and a space you’re threatening, like the deep space? You can explode to extend your advantage. Is your defender not looking at you? Has the disc position changed which spaces you can threaten, like after a swing to the break side? Are you simply faster than you defender? These are all advantages we can build on with explosion cuts.
+
+## Commitment
+
+https://gfycat.com/immensethiskoodoo
+
+The cutter at the front of the stack drives hard towards the right side of the field. As soon as the defender commits to that direction, the cutter changes. Look at their hips! The cutter’s hips are not committed to that direction, but the defender’s hips are facing the right side of the field. The cutter dictated the situation. The idea here is to force your defender to commit to a direction and then change direction.
+
+https://gfycat.com/naiveblanddwarfmongoose
+
+The cutter on the far side of the field turns and drives out with a few hard steps. It forces the defender to commit. When the cutter changes direction, again, look at which way the defender’s hips are facing. They are facing out while the cutter is going in. The defender’s body is committed to out.
+
+## Shoulder
+
+Between Explosion and Commitment cuts, so to speak, are shoulder cuts. They involve a change of direction, like commitment cuts, but are shorter and rely on you to read what the defense gives you more than a commitment cut. By attacking a defender’s shoulders, you can force them to twist their shoulders (and more important, hips!), and that opens up space for you to change direction. A jab step or a few forward steps might be all it takes to create this commitment.
+
+https://gfycat.com/everlastingdamagedfrog
+
+Perhaps we should call this the Shofner Cut because Jesse Shofner has it mastered. Her quickness and decisiveness are elite, and you see how quickly she reads her defenders’ commitment to decide where to attack after her initial jab step.
+
+https://gfycat.com/impartialfondfugu
+
+Look at the cutter in the top right part of the screen, Alissa Soo. While her initial move is strong, the defender does an excellent job recovering. Soo changes direction again as a reaction, and while she gets open, the timing is no longer right to get the disc. But the technique of her cut is on display.
+
+## Homework
+For homework, consider the following questions:
+
+What variable of cutting are you most effective at manipulating? Which family of cut are you the best at?
+What variable to you utilize the most? Which family do you use the most?
+Bonus: If you have a playing opportunity between this week’s module and next, try to use a cut from each family over the course of play, even if it’s uncomfortable. Push yourself past your habits and out of your comfort zone!
