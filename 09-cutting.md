@@ -179,7 +179,7 @@ https://gfycat.com/heartfeltadvancedbee
 
 It takes some footwork practice to smoothly be able to convert the backfield cut into the upfield cut with enough pace to beat the defender to the space, so this is one I recommend getting reps with. Try to keep your center of gravity above your base (don’t lean your body or extend your legs too far in a given direction) as you move towards the backfield to increase how quickly you can curl!
 
-## Stutter Step
+### Stutter Step
 
 This is a personal favorite of mine, particularly because I’m not someone with the explosive athleticism to blast away for the defense. I like this cut because, simply but manipulating your speed, you can fool the defender into thinking you’re changing direction. And being sneaky is fun!
 
